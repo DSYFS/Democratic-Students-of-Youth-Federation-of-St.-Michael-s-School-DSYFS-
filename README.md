@@ -1,0 +1,2 @@
+# Democratic-Students-of-Youth-Federation-of-St.-Michael-s-School-DSYFS-
+Democratic Students of Youth Federation of St. Michael’s School (DSYFS) is a student-led union founded on the principles of justice, equality, and unity. We are committed to creating a safe, peaceful, and progressive environment where every student—regardless of gender, caste, or religion—is treated equally and empowered to rise.  
